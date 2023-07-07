@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @egerafi
+- 👀 I’m interested in Cryptocurrency markets.
+- 🌱 I’m currently learning Prcie Action
+- 💞️ I’m looking to collaborate on Funding prop firms
+- 📫 How to reach me: twitter @egerafi
